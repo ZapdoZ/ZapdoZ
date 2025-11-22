@@ -1,1 +1,1 @@
-Russian military shortwave stuff and random other projects
+Russian military shortwave stuff. Not maintained anymore, only left available as a public archive
